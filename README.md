@@ -3,4 +3,4 @@
 - 🔭 I’m currently working on Large Language Models analysis
 - 🌱 I’m currently learning Artificial Intelligence
 - 👯 I’m looking for a Ph.D. position starting in Fall 2025
-- 📫 How to reach me: 1206944633@stu.xjtu.edu.cn
+- 📫 How to reach me: whiterainocean@gmail.com || 1206944633@stu.xjtu.edu.cn || ybai3@nd.edu
